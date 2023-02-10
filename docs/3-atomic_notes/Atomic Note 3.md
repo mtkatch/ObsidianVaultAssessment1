@@ -1,0 +1,4 @@
+In class, the discussion regarding mushrooms and fungi was really interesting to me, and especially timely with the release of the new hit TV show The Last of Us. Based off the video game with the same name, The Last of Us focuses on a [[science]] fiction story where a fungal virual infects humanity, and devolves them into zombie like creatures. What seperates the Last of Us from other zombie content is the interconnectivity between all the creatures, through the fungus. It resonated with me, as we were just learning this very concept in class, when we discussed the [[electricity]] found within them! Always a cool moment when soemthing you learn in class and your own personal entertainment shows/movies intersect. 
+
+[THE LAST OF US 4K HDR | Talking Fungus on 1968's Television Show - Opening Scene (S1E1) - YouTube](https://www.youtube.com/watch?v=OLNagvJHl3g)
+https://www.youtube.com/watch?v=vijGdWn5-h8
