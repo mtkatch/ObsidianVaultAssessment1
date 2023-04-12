@@ -1,5 +1,0 @@
-All of this talk of [[technological]] advances is making me extremely excited for Christopher Nolan's upcoming film Oppenheimer. I really love movies, and this is a great intersection between the course content and my own personal interests. Nolan, known for his incredible practical effects throughout his films, plans to replicate the Trinity test! The discussion on Nuclear tests made me reflect on these advancements and begin thinking about the [[ethics]] of [[science]], as well as the progression of how far experiments have come.
-
-[Christopher Nolan created a nuclear explosion for "Oppenheimer" without CGI | CNN](https://www.cnn.com/2022/12/13/entertainment/christopher-nolan-oppenheimer/index.html#:~:text=Christopher%20Nolan%20created%20a%20nuclear%20explosion%20for%20%27Oppenheimer%27%20without%20CGI&text=Christopher%20Nolan%20in%202018.&text=Director%20Christopher%20Nolan%20created%20the,of%20the%20first%20atomic%20bomb.)
-
-[(57) Oppenheimer | Official Trailer - YouTube](https://www.youtube.com/watch?v=bK6ldnjE3Y0)
