@@ -1,0 +1,3 @@
+I loved the Westworld TV series that was on HBO a few years ago, and I thought it was an excellent work on artificial life, and the fears that many people have regarding technology rising up against humans. It's an allegory that is all the more relevant today in the age of [[AI]], with people (myself included), wondering how this will affect society and whether this poses serious risk. 
+
+I remember my dad making me watch the movie when he heard I was interested in the television show, and quite honestly I found it to be quite boring. That being said, these are fears that have dated back decades, and it is fascinating to see both how far [[technology]] has developped, as well as how much closer we are to what they were warning us about.
