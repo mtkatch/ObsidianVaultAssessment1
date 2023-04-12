@@ -1,2 +1,0 @@
-
-The reference to Dr. Strangelove in the slides obviously triggered my interest in movies, and that of the [[nuclear]] bomb as well. The film, _Dr_. _Strangelove_ or: How I Learned to Stop Worrying and Love the Bomb, was directed by legendary director Stanley Kubrick, and was an extremely influential and timely work on human nature, [[technology]], [[ethics]], and destruction. It posed many important questions regarding the concept of mutually assured destruction, and satirized the Cold War in a humourous and frankly scary way.

@@ -1,4 +1,0 @@
-As you could tell, I really love cinema, and a lot of how I learn/understand new concepts is through this artform. I touched on this a tiny bit in the end of my Ex Machina note, but the central idea of [[Jurassic Park]] has been on my mind as we wrapped up the semester of learning about the [[development]] and [[innovation]] in the field of [[computer]]s, and it's history.
-
-The risk vs reward, and the [[ethics]] involved on just because something is possible doesn't neccesarily warrant whther we should do it. Obviously, the invention of computers and the internet brought forward countless benefits. That being said, as we move further and further along this technological path, ethics and the notion of knowing what to venture into needs to be considered. With [[AI]] seemingly taking over the [[internet]], It's certainly a concern that this is a technology that has the possibility of negative effects of society. 
-
