@@ -1,0 +1,13 @@
+## The Journey Between website/Idea Notes/atomic_notes/Atomic Note 2 and website/Idea Notes/Idea Note-Oppeneheimer
+
+Early in the semester when I was asked to figure out the keywords representing what I wanted to aim for in this course, my choice was "Diving deeper into what I already know, creativity, history." I feel like I've absolutely done so, and I'm quite proud of my work in this course, as I tried my best to relate what I've been learning to concepts I'm familiar with and passionate about. 
+- [[website/Idea Notes/atomic_notes/Atomic Note 2]]
+- #internet
+- Throughout history, science has always looked to push the boundaries of ethics and morals. In an effort to learn more about human existance and the natural world, there has always been a push to advance in terms of what we know... often by any means neccesary. However, there reaches a point where one must ask whether the ends justify the means.
+- [[website/Idea Notes/Idea Note-Jurassic Park]]
+- #ethics
+- This relates to a main theme of my memexes thus far; the link between real life ideas and concepts and their representation in film. Film is an excellent tool that can be used to model phenomenons in real life, and provide allegories that help decipher real life. In this case, Jurassic Park posed a question that has riddled humanity: Just because you can push forward with technology, should you? This poses questions regaridng ethics, progress, innovation, and the danger that could potentially come with it.
+- [[website/Idea Notes/Idea Note-Oppeneheimer]]
+This ties into a key idea and topic from my studies. As we discussed the development of the internet, the topic of the atomic bomb was a major milestone in the history of technology, warfare, and overall technological development around the world. Not only that, but it was a major ethical dilemma, and one that is extremely difficult to answer.
+
+I'm proud of my work this semester, and my furfillment of my goals that I'd set out at the beginning of the semester. I've deepened my understanding of a crucial time in history, while using creative methods to decode and better understand ideas, class concepts, and the time periods studied as a whole. It was extremely difficult personally to grasp some of the concepts technologically for this course, such as Obsidian and Github. However, if there's one thing that I learned in this course, it's to push yourself past what what you think is possible and to strive for improvement, even when you think a certain idea or system is at it's limit. 
